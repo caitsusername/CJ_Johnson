@@ -1,5 +1,5 @@
 # CJ_Johnson
-<img width="2760" height="1504" alt="Gemini_Generated_Image_xot6jtxot6jtxot6" src="https://github.com/user-attachments/assets/b23b1b49-6d96-437f-bc16-2b955068d40d" />
+<img width="971" height="525" alt="CJ Keyboard 2 Awards snip pic" src="https://github.com/user-attachments/assets/4e99060e-14da-4e68-b8e9-c3d521b0d0be" />
 
 
 I am still testing this GitHub concept for both educational and professional purposes, but welcome to my GitHub! I'm of a student-first (_and foremost_) mindset, so I will share any & all educational resources I can create/provide. I try to always be available for assistance (_once in my network, always in my network_). I enjoy building different virtual machines, listening to every genre of music, playing Pokemon Go, making lists & folders to stay organized and going to my local movie theater.  Born and raised in MA, but currently dwelling in NC.   
